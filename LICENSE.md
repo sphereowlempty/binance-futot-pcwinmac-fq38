@@ -1,4 +1,4 @@
-# 
+# Premium binance futures bot herramientas for Mac OS | Profesional binance futures bot herramientas for PC Windows. Featuring comercio de futuros and API de intercambio centralizado — optimized for maximum performance.
 
 
 
